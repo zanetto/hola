@@ -1,6 +1,5 @@
 # hola
-- Comprate un pollo dominguez
-- Mocos de nariz peluda
-- Estado civil ?
-- Hola que tal?
-- Que dices?
+- Pero que pasa aqui?
+- Esto es la demostracion perfecta de la vida
+- Estoy aburrido y me voy a...... ?¿
+- Ya tu sabes Señor Danilo a que.....
